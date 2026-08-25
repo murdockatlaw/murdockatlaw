@@ -12,4 +12,4 @@ ships (frankmatt, mattfoggy, dexmatt, allat) is fine as long as ur not weird abt
 
 would love to b the dd/matt of the pt walk of fame one day... jsykyk ahsdahd
 
-<img width="200" src="https://https://i.pinimg.com/736x/f2/45/ca/f245ca001806e8fb8387b5a4ba57e064.jpg" alt="bleh3">
+<img width="400" src="https://i.pinimg.com/736x/f2/45/ca/f245ca001806e8fb8387b5a4ba57e064.jpg" alt="bleh3">
