@@ -5,8 +5,8 @@ u can call me $\Large\color{#6b0000}{\textsf{Matt}}$ (pref) or wren! i am a mino
 $\small{\textsf{ }}$
 c+h comf, int!
 
-<img width="1200" height="80" alt="tumblr_fde33a93ee21c43f196aa349846b7bef_b8bd5dc8_1280" src="https://github.com/user-attachments/assets/301e7dfd-74d4-4beb-a7ae-71f2a55f00d0" alt="bleh">
 
+<img width="1200" height=8 src="https://64.media.tumblr.com/fde33a93ee21c43f196aa349846b7bef/a27c70496e579957-3b/s1280x1920/b8bd5dc873704b1c5bb4034c1d8cd905912a60d0.pnj" alt="bleh">
 ships (frankmatt, mattfoggy, dexmatt, allat) is fine as long as ur not weird abt it
 
 <img width="604" height="32" alt="tumblr_226223317f3378b35a81daf56de929fa_64329f9d_640" src="https://github.com/user-attachments/assets/7d40a0e8-27b2-4755-a123-874da969c68a" />
