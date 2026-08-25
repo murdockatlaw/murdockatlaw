@@ -1,4 +1,4 @@
-<img width="140" src="https://komarev.com/ghpvc/?username=murcdockatlaw&color=32cd32" alt="views count"> Used to showcase how many people have viewed your github.
+<img width="140" src="https://komarev.com/ghpvc/?username=murcdockatlaw&color=b20000" alt="views count"> 
 
 my github is not cutesy this is just where i yap
 u can call me $\Large\color{#6b0000}{\textsf{Matt}}$ (pref) or wren! i am a minor (15) so weirdos $\large\color{#d60000}{\textsf{dni}}$, hev daredevil kin, 
