@@ -10,6 +10,6 @@ c+h comf, int!
 ships (frankmatt, mattfoggy, dexmatt, allat) is fine as long as ur not weird abt it
 <img width="604" src="https://64.media.tumblr.com/226223317f3378b35a81daf56de929fa/93d43f67a555cd51-2a/s640x960/64329f9db56f12bdb3460a58efb482599beddf72.gifv" alt="bleh2">
 
-would love to b the dd/matt of the pt walk of fame one day... jsykyk ahsdahd
+would love to b the dd/matt of pt one day... jsykyk ahsdahd
 
 <img width="400" src="https://i.pinimg.com/736x/f2/45/ca/f245ca001806e8fb8387b5a4ba57e064.jpg" alt="bleh3">
